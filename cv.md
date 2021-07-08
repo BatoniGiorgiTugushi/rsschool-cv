@@ -1,5 +1,5 @@
 ## Giorgi Tugushi
-- giorgitugushi123456789@gmail.com
+- [Gmail](https://mail.google.com/mail/u/0/#inbox)
 - [Giorgi Tugushi](https://www.facebook.com/giorgi.tugushi.108)
 - [Instagram](https://www.instagram.com/__giorgi_tugushi__/?hl=ru)
 - My goal is to get a job as a web-designer and to be better in this job. I have some expereince in it. For example: I know Html, Css, Php and Phyton good, also i have a little knowlige in Javascript and C++. I really want to study Nodejs and ReactJ
